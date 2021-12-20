@@ -5,5 +5,5 @@
 ## 작성자 : 조은호
 
 ## 연락처 : 010-4299-5207
-* 카카오톡 : seonyeonghun
+* 카카오톡 : kcs3653@naver.com
 * 이메일 : kcs3653@naver.com
